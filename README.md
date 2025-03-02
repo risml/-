@@ -1,2 +1,0 @@
-# -
-Elise Lucet Nearest Edge
